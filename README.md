@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kiransbabuvp
-- 👀 I’m interested in Electronics 
+- 👀 I’m interested in electronics based projects 
 - 🌱 I’m currently pursuing Btech in Electronics & Communication
 - 📫 You can reach me @, kiransbabuvp@gmail.com
 
